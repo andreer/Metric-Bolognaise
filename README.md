@@ -14,7 +14,7 @@ From http://cooking.nytimes.com/recipes/1015181-marcella-hazans-bolognese-sauce
 
 2.3 dl white wine
 
-3.5 dl canned imported Italian plum tomatoes, cut up, with their juice canned plum tomatoes, with juices
+3.5 dl canned imported Italian plum tomatoes, cut up, with their juice
 
 1 tablespoon oil
 
